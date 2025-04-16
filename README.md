@@ -1,7 +1,7 @@
 # S25Project
 #Learning goals
 1. Expression & Vocabulary
-   Students can
+   : Students can
 2. Grammar
    Students can
 3. Listening
